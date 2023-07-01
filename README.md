@@ -1,1 +1,6 @@
 # KB_AnNisaDira_06TPLP006
+
+Tugas UAS
+An Nisa Dira
+201011400378
+06TPLP006
